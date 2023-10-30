@@ -6,4 +6,7 @@ I'm Zsuzsa Prekub. I am a manual tester, but I would like to write and run autom
  Here's my facebook profile where you can see other infos about me (pics about me, my friends, my husband and my paintings):
  https://www.facebook.com/zprekub/
 
+ Here you can check what I'm reading now and my favorite books:
+ https://moly.hu/tagok/humbycica
+
  
